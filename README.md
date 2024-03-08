@@ -8,4 +8,5 @@
   ![a58d69c83ef14e19a221d15e3510a237-ezgif com-resize](https://github.com/Gudetea/Gudetea/assets/127058852/bb88cf4f-93da-4538-b736-53730fa386e5)
 
 
-![Frame 3](https://github.com/Gudetea/Gudetea/assets/127058852/0e03b996-e20a-479a-94cb-5526070bd00e)
+![Frame 3](https://github.com/Gudetea/Gudetea/assets/127058852/229acff8-8f67-43ce-8b5b-345036554af4)
+
