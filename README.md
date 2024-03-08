@@ -1,3 +1,3 @@
-![Group 1](https://github.com/Gudetea/Gudetea/assets/127058852/12099dc7-af4b-44e1-af92-fde38c9248b9)
+![Heading](https://github.com/Gudetea/Gudetea/assets/127058852/18d91357-f4b5-48aa-97f1-6684bc98279e)
 
 
